@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rajneesh kumar
-- 👀 I’m ceo & founder of [click in the link] (https://www.instagram.com/hackndroid)  (https://www.instagram.com/cyberpaltan) (https://www.instagram.com/myaiclass)
+- 👀 I’m ceo & founder of [click in the link] ([https://www.instagram.com/hackndroid](https://www.instagram.com/hackndroid?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==))  (https://www.instagram.com/cyberpaltan) (https://www.instagram.com/myaiclass)
 - 🌱 I’m currently student 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me  contact with me ...
